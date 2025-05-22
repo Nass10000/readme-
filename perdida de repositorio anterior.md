@@ -1,0 +1,1 @@
+mi repositorio anterior era Nass90100 perdi me bloquearon mi correo ahora perdi el acceso a Nass90100 subire una imagen de mi avances en el proyecto anteriores , lastima que no puedo acceder a los proyectos que hice.
