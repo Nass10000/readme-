@@ -1,4 +1,4 @@
-Mi cuenta anterior de GitHub (NASS90100) fue bloqueada  debido a problemas con la contraseña. Como respuesta, he creado este nuevo repositorio 🚀 donde estoy reconstruyendo y documentando todo mi trabajo previo.
+Mi cuenta anterior de GitHub[ (NASS90100)](https://github.com/Nass90100) fue bloqueada  debido a problemas con la contraseña. Como respuesta, he creado este nuevo repositorio 🚀 donde estoy reconstruyendo y documentando todo mi trabajo previo.
 
 Aquí podrán encontrar evidencia de los proyectos y avances realizados, incluyendo imágenes del historial de push  y detalles sobre el progreso 📈.
 
